@@ -1,2 +1,2 @@
 # flllusky.github.io
-link to original website
+if you're reading this, the website is either down/not working.
